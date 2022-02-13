@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ImTra (neImTra)
+- 👋 Hi, I’m @ImTra
 - 👀 I’m interested in code programms
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me ImTra#4894 (discord) https://www.youtube.com/channel/UCj9Ch6eGAa_W8FcJRykCRAw(youtube)
+- 📫 How to reach me ImTra#4894 (discord)
