@@ -1,3 +1,1 @@
-- 👋 Hi, I’m @ImTra
-- 👀 I’m interested in code programms
 - 📫 How to reach me ImTra#4894 (discord)
